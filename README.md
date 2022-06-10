@@ -1,7 +1,7 @@
 - 👋 Hi, I’m super man @ym01283
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in kluy,
+- 🌱 I’m currently learning jhuy
+- 💞️ I’m looking to collaborate on jhuu
 - 📫 How to reach me Levi
 
 <!---
